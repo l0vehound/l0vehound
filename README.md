@@ -6,5 +6,5 @@
 <h1 align="center">TOBIAS / NICO / WHATEVER YOU WISH</h1>
 <h3 align="center">𐂂꩜𐂂꩜𐂂꩜</h3>
 
-<p align="center">19 it/he queer boything :-) typically sitting with my dear friend danny and their gaggle ! if not, typically offtab . but regardless, feel free to interact with me ! whisper to grab my attention; i love making friends .</p>
-<p align="center">DNI PROFIC / PROSHIP . HIDE ME OR I WILL HIDE YOU . TALK TO ME AND I'LL EXPLODE YOU WITH MY MIND !!</p>
+<p align="center">19 it/he queer boything :-) typically sitting with my dear friend danny and their gaggle ! if not, typically offtab . but regardless, feel free to interact with me ! whisper to grab my attention; i love making friends . i block/hide freely btw .</p>
+<p align="center">DNI PROFIC / PROSHIP . HIDE ME OR I WILL HIDE YOU . TALK TO ME AND I'LL EXPLODE YOU WITH MY MIND !! fyi i will think you're gross and an oddball if you put tits on your pony and will probably temphide / permahide depending on how i feel . #WEIRDOOOOO</p>

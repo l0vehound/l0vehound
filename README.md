@@ -8,3 +8,4 @@
 
 <p align="center">19 it/he queer boything :-) typically sitting with my dear friend danny and their gaggle ! if not, typically offtab . but regardless, feel free to interact with me ! whisper to grab my attention; i love making friends . i block/hide freely btw .</p>
 <p align="center">DNI PROFIC / PROSHIP . HIDE ME OR I WILL HIDE YOU . TALK TO ME AND I'LL EXPLODE YOU WITH MY MIND !! fyi i will think you're gross and an oddball if you erp on PONYTOWN and will probably temphide / permahide depending on how i feel . #WEIRDOOOOO</p>
+<p align="center">i'd prefer not to talk to minors ... we can have brief conversation but i will NOT be your friend . do not friend me if you are a minor, i'm pushing 20 we have no reason to be friends . thanks !</p>

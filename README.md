@@ -10,3 +10,5 @@
 <p align="center">DNI PROFIC / PROSHIP . HIDE ME OR I WILL HIDE YOU . TALK TO ME AND I'LL EXPLODE YOU WITH MY MIND !!</p>
 <p align="center">fair warning i guess .. since i .. need to plaster it on my forehead or something even though it's not a big part of me ? RPF RPF RPF RPF RPF RPF IF YOU DO NOT LIKE RPF JUST DON'T INTERACT . RPF RPF RPF RPF RPF RPF RPF RPF RPF</p>
 <p align="center">i'd prefer not to talk to minors ... we can have brief conversation but i will NOT be your friend . do not friend me if you are a minor, i'm pushing 20 we have no reason to be friends . thanks !</p>
+
+<p align="center"> https://spotify-github-profile.kittinanx.com/api/view?uid=uoyj43zvscuragygztsmpkxa3&cover_image=true&theme=default&border_radius=15&bar_color=53b14f

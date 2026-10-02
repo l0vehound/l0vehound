@@ -3,7 +3,7 @@
   </a>
 </p>
 
-<h1 align="center">TOBIAS / NICO / WHATEVER YOU WISH</h1>
+<h1 align="center">NICO / WHATEVER YOU WISH</h1>
 <h3 align="center">𐂂꩜𐂂꩜𐂂꩜</h3>
 
 <p align="center">19 it/he queer boything :-) typically offtab . regardless, feel free to interact with me ! whisper to grab my attention; i love making friends . i block/hide freely btw .</p>
